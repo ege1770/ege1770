@@ -1,0 +1,6 @@
+- ! Bonjour, I’m @ege1770. !
+- ! I am thrilled to learn about automation. !
+- ! I am recently trying to adapt to the evironment of open source services. !
+- ! I would rather get what I could from anything without being a burden. ! 
+- ! My social accounts are not being used daily because of my schedule in dentistry. ! 
+- ! Merci beaucoup ! 
